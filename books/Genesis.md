@@ -8,8 +8,8 @@
 4. And as the Gods saw the light subside, They said that it was good.
 5. And the Gods said, Let there be lights in the sky to divide the day from the night; and let them be used for direction, for seasons and timekeepinge and let them be for illumination to provide light and warmth: and it was so. 
 6. And the Gods saw two great lights forming; the greater light to rule the day, and the lesser light to rule the night: they saw the stars form also. 
-7. And the Gods also set them in the sky to give light upon the newly forming earth, And to rule over the day and over the night, and to divide the light from the darkness: 
-8. And the Gods saw that it was good. And the Gods saw the light was now divided from the darkness. They called the light Day, and the darkness They called Night. 
+7. And the Gods also set them in the sky to give light upon the newly forming earth, And to rule over the day and over the night, and to divide the light from the darkness: And the Gods saw that it was good. 
+8. And the Gods saw the light was now divided from the darkness. They called the light Day, and the darkness They called Night. 
 9. And that evening and morning were the first day.
 10. And as the earth was forming, the Gods said, Let there be a sky to divide and seperate the waters from the land.
 11. And They watched the sky form as it divided the oceans which were under the sky from the mists which were in the sky: and it was so.

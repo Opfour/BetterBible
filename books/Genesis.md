@@ -15,17 +15,17 @@
 11. And They watched the sky form as it divided the oceans which were under the sky from the heavens which were above the sky: and it was so.
 12. And the Gods called the firmament, sky. 
 13. And the evening and the morning were the second day.
-14. And the Gods said, Let the waters under the sky be gathered together into oceans, and let the dry land appear: and it was so.
-15. And the Gods called the dry land Earth; and the gathered waters called he oceans: and They saw that this was good.
+14. And the Gods watched the waters under the sky be gathered together into oceans, and they saw the dry land appear: and it was so.
+15. And the Gods called the dry land Earth; and the gathered waters They called oceans: and They saw that this was good.
 16. And that evening and morning were the third day.
-17. And the Gods said, Let the earth bring forth seedlings and greenery, and let the trees yield fruit and seed after its kind: and it was so.
+17. And the Gods saw the earth bring forth seedlings and greenery, and the trees yielding fruit and seed after their own kind: and it was so.
 18. And the earth brought forth seedlings and greenery and the trees yielded fruit and seeda after their own kind: and They saw that it was good.
 19. And the evening and the morning were the fourth day.
-20. And the Gods said, Let the waters bring forth an abundance of moving creatures that life may progress, and birds that may fly above the earth in the open skies of heaven.
+20. And the Gods saw the waters bring forth an abundance of moving creatures, and birds that may fly above the earth in the open skies of heaven.
 21. And the Gods seen the creation of the great whales, and every living creature that moved, which the waters brought forth in abundance, after their own kind, and every winged bird after its own kind: and the Gods saw that it was good.
 22. And the Gods blessed them all, saying, Be fruitful and multiply; fill the waters of the seas and oceans, and let the birds multiply to fill the skies in the earth.
 23. And the evening and the morning were the fifth day.
-24. And the Gods said, Let the earth bring forth living creature after their own kind, cattle, and creeping thing, and beasts of the earth after their kind: and it was so.
+24. And the Gods saw the earth bring forth living creature after their own kind, cattle, and creeping thing, and beasts of the earth after their kind: and it was so.
 25. And the Gods saw the beast of the earth come forth, each after their kind, and cattle after their kind, and every thing that creepeth upon the earth after his kind: and the Gods saw that it was good.
 26. And the Gods said, Let us shape man in our image, and in our likeness: and let them have dominion over the fish of the sea, and over the fowl of the air, and over the cattle, and over all the earth, and over every creeping thing that creepeth upon the earth.
 27. So the Gods created man in their own image, in the image of the Gods, they created man; both male and female.

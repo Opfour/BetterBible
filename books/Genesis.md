@@ -13,7 +13,7 @@
 9. And that evening and morning were the first day.
 10. And as the earth was forming, the Gods said, Let there be a sky to divide and separate the earth from the starry heavens.
 11. And They watched the sky form as it divided the oceans which were under the sky from the heavens which were above the sky: and it was so.
-12. And the Gods called this the firmament. 
+12. And the Gods called the firmament, sky. 
 13. And the evening and the morning were the second day.
 14. And the Gods said, Let the waters under the sky be gathered together into oceans, and let the dry land appear: and it was so.
 15. And the Gods called the dry land Earth; and the gathered waters called he oceans: and They saw that this was good.
